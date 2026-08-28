@@ -1,1 +1,3 @@
-# AnonTroj
+Random Trojan I Made :3
+
+BTW I AM NOT RESPONSIBLE FOR ANY DAMAGES DONE TO UR POOR PC!!!!
